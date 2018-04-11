@@ -1,3 +1,7 @@
 # Hello_word
 IS belong to jing
- good idear
+
+I am Jing. coming from China. a little newbie. Thanks!
+
+hai baby
+ni hao!
